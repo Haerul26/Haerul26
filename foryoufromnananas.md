@@ -1,6 +1,6 @@
 Hi my dear byyy 
 
-This is me, haerul. Sebelumnya terima kasih udah mau
+This is me, nananas. Sebelumnya terima kasih udah mau
 Jadi temen baik buat aku di dua bulan terakhir ini
 To be honest, i'm very happy to know you.
 
@@ -28,7 +28,7 @@ Sendiri sejujur nya. Aku belum yakin kalau aku
 Suka sama kamu seperti seorang yang ingin berhubu-
 Bungan, tapi faktanya memang aku suka sama kamu.
 
-I have crush on you
+I HAVE CRUSH ON YOU
 
 Dan tadinya aku mau bilang langsung pas nanti malem
 Waktu kita ketemu. Tapi gpp, aju ngomongnya disini
@@ -49,10 +49,10 @@ Eh bentar deh bau bilang ini juga.
 Udahh ya bye👋🏻
 
 
-<[---from: haerul
+<[---from: nananas
 <[---to: byyy ---]>
 
 
-<!--- haerul --->
+<!--- nananas --->
 
 
